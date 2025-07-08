@@ -23,4 +23,4 @@
 如果你在寻找一个快速、稳定、安全、无广告的日本AV免费资源站，本站将是你不容错过的选择。每天都有最新的影片更新，欢迎你随时访问，享受我们的高品质资源。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss00026/86780 ）</span>
